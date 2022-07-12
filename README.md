@@ -1,1 +1,1 @@
-# scro divest quitclaim deeds and warranty deeds 
+# scro. {divest}. Quit claim deeds and warranty deeds. 
